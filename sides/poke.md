@@ -12,6 +12,7 @@
 - green onion
 - grated ginger
 - lime
+- fresh peas
 
 ## Instructions
 
