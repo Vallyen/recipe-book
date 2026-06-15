@@ -8,7 +8,7 @@
 - little soy sauce
 - little sesame oil
 - sesame seeds
-- spring onion
+- sweet onion
 - green onion
 - grated ginger
 - lime
